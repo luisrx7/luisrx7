@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @luisrx7
+- 👀 I’m interested in 3d printing, cybersecurity, and software development 
+- 🌱 I’m currently learning cloud ops
+- 📫 How to reach me:
+  - [Email](mailto:luisrx7_locax@hotmail.com)
+  - [Linkedin](https://www.linkedin.com/in/lu%C3%ADsfreitas75/)
+  - Telegram: @luisrx7
