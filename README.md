@@ -5,3 +5,4 @@
   - [Email](mailto:luisrx7_locax@hotmail.com)
   - [Linkedin](https://www.linkedin.com/in/lu%C3%ADsfreitas75/)
   - Telegram: @luisrx7
+  - discord: c4pt4inb4rcode
